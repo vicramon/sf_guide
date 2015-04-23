@@ -1,8 +1,6 @@
 # How to Move to San Francisco
 
-Alright, you finally got the job you’ve been dreaming of, and now it’s time to pack your bags and move to San Francisco!
-
-Or perhaps you’re going to try your luck once you get here. Either way, moving to SF can be a challenge. Having just made the move myself all the way from the other coast, I have a few tips for fellow SF newcomers that might come in handy. 
+Alright, you finally got the job you’ve been dreaming of, and now it’s time to pack your bags and move to San Francisco! Or perhaps you’re going to try your luck once you get here. Either way, moving to SF can be a challenge. Having just made the move myself all the way from the other coast, I have a few tips for fellow SF newcomers that might come in handy. 
 
 ## Getting Your Stuff Here
 
